@@ -2123,6 +2123,7 @@ https://www.chiesaditotti.com/users/fandbstories11
 https://www.midmajormadness.com/users/fandbstories11
 https://www.blackandredunited.com/users/fandbstories11
 https://www.onceametro.com/users/fandbstories11
+https://bedah.id
 https://www.brotherlygame.com/users/fandbstories11
 https://www.crimsonandcreammachine.com/users/fandbstories11
 https://www.defendingbigd.com/users/fandbstories11
